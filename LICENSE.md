@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with new NFT Trading Bot for opensea sniper bot | bundle-transactions & wash-trading-detection, the #1 opensea sniper bot. Includes bundle-transactions
 
 
 
